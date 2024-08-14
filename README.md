@@ -1,0 +1,9 @@
+https://www.christianpost.com/news/abc-falsely-claims-minn-law-wouldnt-take-kids-from-parents.html
+https://www.revisor.mn.gov/bills/text.php?number=HF146&version=1&session=ls93&session_year=2023&session_number=0&format=pdf
+https://legiscan.com/MN/rollcall/HF146/id/1283719
+https://www.revisor.mn.gov/statutes/cite/543.23
+https://nypost.com/2024/08/08/opinion/tim-walz-turned-minnesota-into-a-danger-zone-for-confused-kids/
+https://orthochristian.com/158965.html
+https://phvieparchy.org/en/uchrezhdyon-prihod-v-g-nyachang/
+https://www.house.mn.gov/hrd/bs/93/HF0146.pdf
+https://www.youtube.com/shorts/JGree0CDaqY
